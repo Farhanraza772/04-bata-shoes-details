@@ -1,0 +1,1 @@
+# 04-bata-shoes-details
